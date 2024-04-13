@@ -24,6 +24,6 @@ To adapt to evolving practices and legal requirements, we may update this Privac
 
 ## Contact Us
 
-If you have any questions or concerns about our Privacy Policy or data practices, please reach out to us at [support@heartsync.com](mailto:support@heartsync.com). Your privacy and satisfaction are our top priorities.
+If you have any questions or concerns about our Privacy Policy or data practices, please reach out to us at [support@heartsync.com](mailto:georgemushi2000@gmail.com). Your privacy and satisfaction are our top priorities.
 
 Thank you for choosing HeartSync for your dating and social education needs. We are committed to providing you with a secure and personalized experience.
